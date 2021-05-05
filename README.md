@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TheDunboy20
+- 👀 I’m interested in programming and spaceflights.
+- 🌱 I’m currently learning math to not be suprised at the university.
+- 📫 How to reach me - thedunboysk@gmail.com
+- :book: Hopefully future CTU student
